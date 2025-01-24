@@ -1,7 +1,7 @@
 # Umeda Oqilova
 
-**IT Manager – Cloud Architect | Cloud Consultant | Data Engineering Enthusiast**  
-📍 Oslo, Norway | 📧 oqilova.u@gmail.com | [LinkedIn](https://www.linkedin.com/in/umedakhon-oqilova/)  
+**IT Manager – Cloud Architect | Cloud Consultant **  
+📍 Oslo, Norway | [LinkedIn](https://www.linkedin.com/in/umedakhon-oqilova/)  
 
 ---
 
