@@ -1,6 +1,6 @@
 # Umeda Oqilova
 
-**IT Manager – Cloud Architect | Cloud Consultant **  
+**IT Manager – Cloud Architect | Azure Consultant **  
 📍 Oslo, Norway | [LinkedIn](https://www.linkedin.com/in/umedakhon-oqilova/)  
 
 ---
