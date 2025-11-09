@@ -1,7 +1,7 @@
-# Umeda Oqilova
+# Umeda Tomic
 
 **IT Manager – Cloud Architect | Azure Consultant **  
-📍 Oslo, Norway | [LinkedIn](https://www.linkedin.com/in/umedakhon-oqilova/)  
+📍 Oslo, Norway | [LinkedIn](https://www.linkedin.com/in/umeda-tomic/)  
 
 ---
 
